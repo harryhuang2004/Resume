@@ -15,3 +15,4 @@
 - 新世代青年城市論壇
 
 ![](https://i.imgur.com/jjDznZc.jpeg)
+![](班級幹部證明.png)
